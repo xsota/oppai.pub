@@ -1,4 +1,4 @@
-# oppai.pub
+# [oppai.pub](https://github.com/xsota/oppai.pub)
 
 I will sell this domain name if you wish.  
 あなたが望むならこのドメイン名を販売致します。  
